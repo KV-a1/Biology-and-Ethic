@@ -1,1 +1,1 @@
-# Biology-and-Ethic
+# Biology-and-Ethics
